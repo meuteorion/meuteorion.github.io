@@ -37,4 +37,4 @@ La sangria est sans alcool, bien que sa recette soit tenue secrète.
 
 ![](img/IMG_1856.jpg)
 
-ENVOYEZ CE QUE VOUS AVEZ TROUVE EN MESSAGE PRIVE A UN CHEF!
+ENVOYEZ CE QUE VOUS AVEZ TROUVÉ EN MESSAGE PRIVÉ À UN CHEF!
